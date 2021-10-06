@@ -1,2 +1,3 @@
 # Hello-world
-just starting
+just starting 
+i'm just started my coding journey..if you want to share something, you are welcome:)
